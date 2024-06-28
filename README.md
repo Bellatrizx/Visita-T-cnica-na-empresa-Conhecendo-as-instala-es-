@@ -1,0 +1,2 @@
+Fizemos outra visita ao prédio da IBM na tutoia. Nessa visita conhecemos melhor o prédio, assistimos a uma palestra da deloitte onde debatemos sobre alguns temas relacionados a tecnologia e realizamos uma atividade chamada de roda da vida, onde avaliamos a parte profissional, familiar, romântica e a área de sáude das nossas vidas.
+Foi divertido e inspirador, ouvimos um pouco da história de vida da palestrante da deloitte, o que nos ajudou a entender melhor sobre esse meio.
